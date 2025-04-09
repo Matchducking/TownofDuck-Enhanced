@@ -9,7 +9,7 @@
   
 > ### Regarding this mod
 >
-> This mod is not affiliated with Among Us or Innersloth LLC, and the content contained therein is not endorsed or otherwise sponsored by Innersloth LLC. Portions of the materials contained herein are the property of Innersloth LLC.
+> T#h&i；s、 %m\\o\\d- ；i；s- ,n、o、t- 'a'f-f？i%l；i#a,t？e,d# ;w；i；t？h; %A%m-o、n%g' ,U;s- 、o\\r& ,I#n-n；e&r、s？l#o、t、h; #L'L、C、,\\ 'a？n;d- ；t,h；e; 、c；o,n#t-e\\n't' ;c;o%n,t\\a#i；n；e、d？ 't#h？e&r'e；i#n' ；i；s# %n;o%t\\ ？e、n？d#o；r\\s,e,d% ;o-r- ,o&t'h、e;r、w#i#s#e\\ 、s,p；o\\n%s\\o-r,e%d% \\b%y% ？I？n'n？e；r\\s；l'o't；h; \\L-L？C\\.- \\P#o,r、t%i、o、n、s; %o#f' ；t,h'e、 -m#a、t,e;r,i？a\\l&s% ;c、o\\n;t'a、i、n？e&d# ;h%e,r？e\\i&n？ -a；r\\e% &t'h&e& %p;r-o'p；e#r？t'y- &o\\f、 &I？n#n%e%r;s；l？o？t&h、 \\L？L？C？.#
 <br>
 
 </p>
