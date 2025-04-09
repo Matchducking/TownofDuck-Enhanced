@@ -138,4 +138,7 @@ To obtain an API token for this project, you must join our Discord server and op
 
 **Note:** Access to the API is subject to our terms and conditions. Failure to comply with these terms may result in revocation of API access. Additionally, you only need a token if you are a developer. You do not need it to play the mod.
 
+**Third-party content:**
+This mod is not affiliated with Among Us or Innersloth LLC, and the content contained therein is not endorsed or otherwise sponsored by Innersloth LLC. Portions of the materials contained herein are property of Innersloth LLC. © Innersloth LLC.
+
 ---
